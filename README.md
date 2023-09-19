@@ -10,5 +10,3 @@ Meu nome é Pathyens Pontes S.
 
 pathyens.stopa@escola.pr.gov.br
 _pathyens
-
-!(https://tenor.com/pt-BR/view/ice-age-scrat-screaming-scream-ahhh-gif-23917644) 
